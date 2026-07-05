@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Aryan Baitha
-**A passionate AIML Engineer || Student  || Fast Learner || B.Tech in CSE(AIML) 24-28 **
+**A passionate AIML Engineer || Student  || Fast Learner || B.Tech in CSE(AIML) 24-28 ** 
 
 Email Me 👉 ✉️ **aryan10jaguar@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
